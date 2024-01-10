@@ -1,0 +1,1 @@
+Screen Recorder & Video Recorder helps you capture smooth & clear screen videos, screenshots in the easiest way. Just with a tap on the floating ball, you can record HD video tutorial, video calls and. And you will never miss live game shows, and important moments anymore.
